@@ -1,2 +1,0 @@
-# yukimotonakama
-niku
